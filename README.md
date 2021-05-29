@@ -1,0 +1,1 @@
+# Auto-Generated-Android-Icon
